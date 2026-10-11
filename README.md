@@ -1,4 +1,7 @@
 # WILL BE WORKED ON SOON
+
+
+  [![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FJokeDragon&label=Madevil%20Manor&labelColor=%2399ad31&countColor=%23bf023f&style=plastic)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2FJokeDragon)
 <img width="1351" height="440" alt="Untitled203_20261008193657" src="https://github.com/user-attachments/assets/f4fb9ada-e8e9-4e2d-a00b-eb7d54b27857" />
 
 <p align="center"> ill reconsider yumeshipping
