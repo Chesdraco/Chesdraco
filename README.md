@@ -93,5 +93,6 @@
 <p align="center">
 thats all . I hope you guys know you turn me up to 11 btw except people i have beef with 
 <p align="center"><img width="119" height="149" alt="IMG_1210" src="https://github.com/user-attachments/assets/2532227b-a9ee-424e-b31b-8f6545026328" />
-
+aww my chuds
+<img width="248" height="248" alt="Untitled211_20261012073503" src="https://github.com/user-attachments/assets/e10a40d3-e5fd-4d1a-a70d-f3e72237ee8a" />
 
