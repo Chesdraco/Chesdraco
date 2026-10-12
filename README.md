@@ -16,7 +16,7 @@
       $\color{#980139}{\normalsize{\texttt{⛔ = very busy , multitasking ,}}}$ <br>
       $\color{#ff0000}{\normalsize{\texttt{⚠︎I may be insensitive }}}$ <br>
 $\color{#ff72a0}{\normalsize{\texttt{❤︎ Chesdraco , Draster , Dragonbell WHATEVER IT IS shipper}}}$ <br>
-      $\color{#d52828}{\normalsize{\texttt{ᯓDO NOT TAKE INSPO OR COPY MY SKINS WITHOUT PERMISSIONS.}}}$ <br>
+      $\color{#7c8227}{\normalsize{\texttt{ᯓDO NOT TAKE INSPO OR COPY MY SKINS WITHOUT PERMISSIONS.}}}$ <br>
     </td>
   </tr>
 </table>⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
