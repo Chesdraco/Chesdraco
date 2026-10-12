@@ -14,8 +14,8 @@
       $\color{#bf023f}{\normalsize{\texttt{🎭 = roleplaying (i barely use this one ,.)}}}$ <br>
       $\color{#bf023f}{\normalsize{\texttt{🌙 = dniuf / afk (mostly afk ;)}}}$ <br>
       $\color{#980139}{\normalsize{\texttt{⛔ = very busy , multitasking ,}}}$ <br>
-      $\color{#ff0000}{\normalsize{\texttt{Draco yumes iwec because of something utterly ridiculous which happened . }}}$ <br>
-      $\color{#ff72a0}{\normalsize{\texttt{❤︎ Chesdraco , Draster , Dragonbell WHATEVER IT IS shipper}}}$ <br>
+      $\color{#ff0000}{\normalsize{\texttt{⚠︎I may be insensitive }}}$ <br>br>$\color{#ff72a0}{\normalsize{\texttt{ⓘREAD STRAWPAGE BEFORE INTERACTING.}}}$ <br>
+$\color{#ff72a0}{\normalsize{\texttt{❤︎ Chesdraco , Draster , Dragonbell WHATEVER IT IS shipper}}}$ <br>
     </td>
   </tr>
 </table>⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
