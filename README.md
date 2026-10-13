@@ -19,7 +19,7 @@ $\color{#ff72a0}{\normalsize{\texttt{❤︎ Chesdraco , Draster , Dragonbell WHA
       $\color{#7c8227}{\normalsize{\texttt{ᯓDO NOT TAKE INSPO OR COPY MY SKINS WITHOUT PERMISSIONS.}}}$ <br>
     </td>
   </tr>
-</table>⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
+</table>⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀<img src="https://readme-typing-svg.demolab.com?font=Syne+Mono&size=28&pause=20&color=ff0000&center=true&vCenter=true&repeat=true&width=700&lines=TURNING+IT+UP+TO+ELEVEN+HAHAHAHA!;A+FORMIDABLE+FOE+ILL+BEST+YOU+FOR+SHO;THE+ACE+OF+BLADES!;YOU+NEED+A+NERF.;Oh+you+better+be+nice+or+ill+get+my+dice.;D20+in+hand+dragon+at+my+command.;Winging+it+dragon+style!;SAY+YOUR+PRAYERS+LITTLE+ONE!;LET+THE+BRAWLWERS+HIT+THE+FLOOR.;BUT+MY+SPIRIT+REMAINS+UNBROKEN!;STABIBY+STAB!;FANCY+LANCY;Metal+warriors+number+ONEEEE!;And+To+The+Dragon+Man;I+WILL+I+WILL+ROCK+YOOU!;Flame+WAAAAOOOOR!;INFLATE+O+DRAGOOON!;POWER+CHORD!;Woefully+Wiped+Out.;Dragon+Breath!;Rumble+And+Roar+To+The+Top+I+soarrr!;time+to+shred+some+foes!;You+Want+A+Toast+Get+Ready+To+Roast!;seek+and+destroy!;dive+bomb!;epic+quest+fail.;shoot+to+thrill+play+to+kill!;just+kidding!;i+got+shreded+bleh"/>
 
 <img width="1080" height="520" alt="Untitled202_20261008193128" src="https://github.com/user-attachments/assets/a105edeb-903f-4592-8d91-97abd9788719" />
 
@@ -39,7 +39,6 @@ $\color{#ff72a0}{\normalsize{\texttt{❤︎ Chesdraco , Draster , Dragonbell WHA
   <p>My main fandoms are CRTOA and Brawl stars . I am a selective-sharing fictionkin.</p>
   <p> i am uncomfy around draco yumes </p>
 </details>
-
 
 
 
