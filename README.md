@@ -17,7 +17,7 @@
       $\color{#ff0000}{\normalsize{\texttt{⚠︎I may be insensitive }}}$ <br>
 $\color{#ff72a0}{\normalsize{\texttt{❤︎ Chesdraco , Draster , Dragonbell WHATEVER IT IS shipper}}}$ <br>
       $\color{#7c8227}{\normalsize{\texttt{ᯓDO NOT TAKE INSPO OR COPY MY SKINS WITHOUT PERMISSIONS.}}}$ <br>
-      $\color{#f7b962}{\normalsize{\texttt{If i have dniuid in my name it means im seriously frustrated or irritated and not in the mood to talk.}}}$ <br>
+      $\color{#f7b962}{\normalsize{\texttt{If i have dniuid in my name it means im seriously frustrated or irritated and not in the mood to talk.YES i will isolate myself from you even if i am close with you.}}}$ <br>
     </td>
   </tr>
 </table>⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀<img src="https://readme-typing-svg.demolab.com?font=Syne+Mono&size=28&pause=20&color=ff0000&center=true&vCenter=true&repeat=true&width=700&lines=TURNING+IT+UP+TO+ELEVEN+HAHAHAHA!;A+FORMIDABLE+FOE+ILL+BEST+YOU+FOR+SHO;THE+ACE+OF+BLADES!;YOU+NEED+A+NERF.;Oh+you+better+be+nice+or+ill+get+my+dice.;D20+in+hand+dragon+at+my+command.;Winging+it+dragon+style!;SAY+YOUR+PRAYERS+LITTLE+ONE!;LET+THE+BRAWLWERS+HIT+THE+FLOOR.;BUT+MY+SPIRIT+REMAINS+UNBROKEN!;STABIBY+STAB!;FANCY+LANCY;Metal+warriors+number+ONEEEE!;And+To+The+Dragon+Man;I+WILL+I+WILL+ROCK+YOOU!;Flame+WAAAAOOOOR!;INFLATE+O+DRAGOOON!;POWER+CHORD!;Woefully+Wiped+Out.;Dragon+Breath!;Rumble+And+Roar+To+The+Top+I+soarrr!;time+to+shred+some+foes!;You+Want+A+Toast+Get+Ready+To+Roast!;seek+and+destroy!;dive+bomb!;epic+quest+fail.;shoot+to+thrill+play+to+kill!;just+kidding!;i+got+shreded+bleh"/>
