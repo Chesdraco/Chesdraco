@@ -22,7 +22,12 @@ $\color{#ff72a0}{\normalsize{\texttt{❤︎ Chesdraco , Draster , Dragonbell WHA
   </tr>
 </table>⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀<img src="https://readme-typing-svg.demolab.com?font=Syne+Mono&size=28&pause=20&color=ff0000&center=true&vCenter=true&repeat=true&width=700&lines=TURNING+IT+UP+TO+ELEVEN+HAHAHAHA!;A+FORMIDABLE+FOE+ILL+BEST+YOU+FOR+SHO;THE+ACE+OF+BLADES!;YOU+NEED+A+NERF.;Oh+you+better+be+nice+or+ill+get+my+dice.;D20+in+hand+dragon+at+my+command.;Winging+it+dragon+style!;SAY+YOUR+PRAYERS+LITTLE+ONE!;LET+THE+BRAWLWERS+HIT+THE+FLOOR.;BUT+MY+SPIRIT+REMAINS+UNBROKEN!;STABIBY+STAB!;FANCY+LANCY;Metal+warriors+number+ONEEEE!;And+To+The+Dragon+Man;I+WILL+I+WILL+ROCK+YOOU!;Flame+WAAAAOOOOR!;INFLATE+O+DRAGOOON!;POWER+CHORD!;Woefully+Wiped+Out.;Dragon+Breath!;Rumble+And+Roar+To+The+Top+I+soarrr!;time+to+shred+some+foes!;You+Want+A+Toast+Get+Ready+To+Roast!;seek+and+destroy!;dive+bomb!;epic+quest+fail.;shoot+to+thrill+play+to+kill!;just+kidding!;i+got+shreded+bleh"/>
 
-<img width="1080" height="520" alt="Untitled202_20261008193128" src="https://github.com/user-attachments/assets/a105edeb-903f-4592-8d91-97abd9788719" />
+<img width="99" height="55" alt="IMG_0385" src="https://github.com/user-attachments/assets/ce767b97-9750-455d-86ac-358f895a85ad" />
+<img width="99" height="55" alt="IMG_1484" src="https://github.com/user-attachments/assets/8e75b141-08c1-4be4-ad44-2601e22a0763" />
+<img width="99" height="55" alt="IMG_1481" src="https://github.com/user-attachments/assets/6da8d9c3-dd01-4319-92a5-ad24a28bce17" />
+<img width="99" height="55" alt="IMG_1485" src="https://github.com/user-attachments/assets/618f599c-4bca-4734-a8e2-88ff197f9c99" />
+<img width="99" height="56" alt="IMG_1480" src="https://github.com/user-attachments/assets/e6dd07bf-69cc-4307-b4d7-9d6ca5aa4e07" />
+
 
 
   
