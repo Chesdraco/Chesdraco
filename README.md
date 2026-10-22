@@ -17,10 +17,10 @@
 <table align="right">
   <tr>
     <td align="center">
-      $\color{#dc143c}{\normalsize{\texttt{ hi . W2IUF , CXH freely unless w friends}}}$ <br>
+      $\color{#dc143c}{\normalsize{\texttt{ 🟢/💬: freely interact .}}}$ <br>
       <img src="atgvea.gif" /> <br>
+       $\color{#f7b462}{\normalsize{\texttt{🎭:roleplaying . i dont usethis alot. }}}$ <br>
+      $\color{#577f24}{\normalsize{\texttt{⛔: busy , no / late resp }}}$ <br>
       $\color{#d52828}{\normalsize{\texttt{DONT take inspo or copy off my skins}}}$ <br>
-      $\color{#796d91}{\normalsize{\texttt{ READ STRAWPAGE OR THIS BYI/BYF}}}$ <br>
-      $\color{#f7b462}{\normalsize{\texttt{════════════════ }}}$ <br>
-      $\color{#577f24}{\normalsize{\texttt{ Ships int if im ok with it . }}}$ <br>
+      $\color{#796d91}{\normalsize{\texttt{ }}}$ <br>
       <p>
