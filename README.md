@@ -16,7 +16,7 @@
 </p>
 <table align="right">
   <tr>
-    <td align="center">
+    <td align="right">
       $\color{#dc143c}{\normalsize{\texttt{ 🟢/💬: freely interact .}}}$ <br>
       <img src="atgvea.gif" /> <br>
        $\color{#f7b462}{\normalsize{\texttt{🎭:roleplaying . i dont usethis alot. }}}$ <br>
