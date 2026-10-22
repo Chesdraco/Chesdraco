@@ -19,9 +19,7 @@
 
 
   <p>
-<a href="https://github.com/witherhalo"> wither ◝ ⩊ ◜</a>
-
-<a href="https://github.com/FEMTANYLX"> nami˙ᗜ˙  </a>
+  <p align="center">
 
 <a href="https://dragontamer.straw.page/home"> strawpage  </a>
 
