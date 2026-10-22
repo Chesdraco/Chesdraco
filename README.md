@@ -21,6 +21,6 @@
       <img src="atgvea.gif" /> <br>
       $\color{#d52828}{\normalsize{\texttt{DONT take inspo or copy off my skins}}}$ <br>
       $\color{#796d91}{\normalsize{\texttt{ READ STRAWPAGE OR THIS BYI/BYF}}}$ <br>
-      $\color{#f7b462}{\normalsize{\texttt{ Main fandoms : crtoa , brawl stars}}}$ <br>
+      $\color{#f7b462}{\normalsize{\texttt{════════════════ }}}$ <br>
       $\color{#577f24}{\normalsize{\texttt{ Ships int if im ok with it . }}}$ <br>
       <p>
