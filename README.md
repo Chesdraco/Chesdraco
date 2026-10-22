@@ -4,3 +4,4 @@
 <a href="https://github.com/LAWRIE"> wither ◝ ⩊ ◜</a>
 <a href="https://github.com/FEMTANYLX"> nami˙ᗜ˙  </a>
 <a href="https://dragontamer.straw.page/home"> strawpage  </a>
+<a href="https://en.pronouns.page/@LeuLovesDraster"> outdated pns page  </a>
