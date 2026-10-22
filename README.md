@@ -5,4 +5,4 @@
 <a href="https://github.com/FEMTANYLX"> nami˙ᗜ˙  </a>
 <a href="https://dragontamer.straw.page/home"> strawpage  </a>
 <a href="https://en.pronouns.page/@LeuLovesDraster"> outdated pns page  </a>
-<a href="https://brawlstars.fandom.com/wiki/Chester"> THE GOAT </a>
+<a href="https://brawlstars.fandom.com/wiki/Chester"> favourite brawler page </a>
