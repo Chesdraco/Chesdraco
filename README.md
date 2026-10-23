@@ -6,9 +6,9 @@
 <img width="99" height="56" alt="IMG_1485" src="https://github.com/user-attachments/assets/fe13c87d-fb11-4833-9a8e-6e5785f821a5" />
 
 </p>
-<table align="center">
+<table align="right">
   <tr>
-    <td align="center">
+    <td align="right">
       $\color{#dc143c}{\normalsize{\texttt{ 🟢/💬: freely interact .}}}$ <br>
       <img src="atgvea.gif" /> <br>
        $\color{#f7b462}{\normalsize{\texttt{🎭:roleplaying . i dont usethis alot. }}}$ <br>
