@@ -22,10 +22,6 @@
   <p align="center">
 
 <a href="https://dragontamer.straw.page/home"> strawpage  </a>
-
 <a href="https://en.pronouns.page/@LeuLovesDraster"> outdated pns page  </a>
-
-<a href="https://brawlstars.fandom.com/wiki/Draco"> me </a>
-
 <a href="https://brawlstars.fandom.com/wiki/Chester"> ❦ favourite brawler page </a>
 
