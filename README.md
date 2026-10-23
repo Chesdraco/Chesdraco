@@ -28,5 +28,6 @@
 
 <a href="https://en.pronouns.page/@LeuLovesDraster"> outdated pns page  </a>
 
-<a href="https://brawlstars.fandom.com/wiki/Chester"> ❦ favourite brawler page </a>
+<a href="https://brawlstars.fandom.com/wiki/Chester"> ❦ first-favourite brawler page </a>
+<a href="https://brawlstars.fandom.com/wiki/Mandy"> ❦ second-favourite brawler page </a>
  
