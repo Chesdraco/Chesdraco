@@ -32,6 +32,4 @@
 <a href="https://en.pronouns.page/@LeuLovesDraster"> outdated pns page  </a>
 
 <a href="https://brawlstars.fandom.com/wiki/Chester"> ❦ favourite brawler page </a>
- <img width="734" height="406" alt="Unknown 41" src="https://github.com/user-attachments/assets/eab6675b-a787-4797-8c1c-601e81c5ba59" />
-
  
