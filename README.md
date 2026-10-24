@@ -18,9 +18,13 @@
       $\color{#010066}{\normalsize{\texttt{ }}}$ <br>
       <p>
 
+
+
+
+
  
   <p>
-  <p align="center">
+  <p align="left">
 
 <a href="https://chesdraco.straw.page"> strawpage  </a>
 
