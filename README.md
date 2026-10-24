@@ -10,9 +10,34 @@ $\color{#FFFFBF}{\normalsize{\texttt{ ﹒⌗﹒🐉 ﹒౨ৎ˚₊‧ CXH . W2IU
 $\color{#7E019F}{\normalsize{\texttt{ If i unfriend you it means you may not play with me frequently or you . ͙͘roll for comedy with disadvantage๋࣭ ⭑  ﹒}}}$ <br>
 
  
+<details>
+ <summary>About me .<img width="33" height="30" alt="IMG_1614" src="https://github.com/user-attachments/assets/452d3dfc-e863-40ff-b013-a8e4d291c9d9" />
+ 
+ </summary>
+  <p> I am often careless . </p>
+  <p> I see myself as a slightly impatient person. </p>
+  <p>  Mirror-sharing Draco fictionkin and Kohlrabi cookie factkin. </p>
+  <p> I glaze Chester .  </a> </p>
+  <p> I snap at people easily, it depends on what they did. If it isn’t too serious , ill make it up for you.</p>
+  <p> I slowly isolate from people and ignore them if they start to get “boring” . Basically they do the same thing in never-ending circles. </p>
+  <p> I go as Leu, Jim and Draco, i am normally know as Leu and Jim, Draco is because i fictionkin him.</p>
+  <p> ISFP, wont interact with strangers much.  </p>
+  <p> Give me an heads up if we roleplay.</p>
+</details>
 
-
-
+<details>
+ <summary>Characters or things i like.<img width="32" height="30" alt="IMG_1241" src="https://github.com/user-attachments/assets/02dd98f2-a04c-4583-89ee-686370bd4788" />
+ </summary>
+  <p> Well, Chester and Mandy of course .  </p>
+  <p> People who constantly talk to me, i like be entertained UNLESS im in a bad mood. </p>
+  <p>My OTPS. Mandraster, Draster , Mandberry and Manddraco. </p>
+  <p> My friends, platonically of course. </a> </p>
+  <p> People who cuddle or interact with me. Well, of course NOT if they roleplay sexually with me. </p>
+  <p> Drawing if i don’t have artblock. </p>
+  <p> Rock or Metal songs , kind of .</p>
+  <p> EXTREMELY patient people. </p>
+  <p> CRTOA, Brawl stars and Wildcraft. </p>
+</details>
 
 <details>
  <summary>DNI<img width="30" height="30" alt="IMG_1242" src="https://github.com/user-attachments/assets/907e97d6-4a27-40af-839d-056b8f30e702" />
@@ -29,37 +54,24 @@ $\color{#7E019F}{\normalsize{\texttt{ If i unfriend you it means you may not pla
 </details>
 
 
-<details>
- <summary>Characters or things i like.<img width="32" height="30" alt="IMG_1241" src="https://github.com/user-attachments/assets/02dd98f2-a04c-4583-89ee-686370bd4788" />
+<details> 
+   <summary>IWEC<img width="32" height="30" alt="1000026633" src="https://github.com/user-attachments/assets/9e9fc4bf-6d94-4d58-9db3-52af88b54c98" /> 
  </summary>
-  <p> Well, Chester and Mandy of course .  </p>
-  <p> People who constantly talk to me, i like be entertained UNLESS im in a bad mood. </p>
-  <p>My OTPS. Mandraster, Draster , Mandberry and Manddraco. </p>
-  <p> My friends, platonically of course. </a> </p>
-  <p> People who cuddle or interact with me. Well, of course NOT if they roleplay sexually with me. </p>
-  <p> Drawing if i don’t have artblock. </p>
-  <p> Rock or Metal songs , kind of .</p>
-  <p> EXTREMELY patient people. </p>
-  <p> CRTOA, Brawl stars and Wildcraft. </p>
+  <p> 15+ people. </p>
+  <p> Cheslawrie, Melochester shippers. I believe lawrie would DESPISE chester. I headcanon melodie and chester as siblings. Sorry if you don't like it. </p>
+  <p> Draco yumeshippers. This is due to something that happened. </p>
+  <p> People who hate my favourite characters or pairings, it's alright if we're friends. </a> </p>
+  <p> People who argue with anyone over tiny reasons. Friends included. </p>
+  <p> "Wallahi" joke users. I mean, you SHOULD know why I put this in the list. </p>
+  <p> People who intentionally be rude to unfamiliar people. Don't ruin their first impression of you, please.</p>
+  <p> ISFP-Type, wont interact with strangers much.  </p>
+  <p> People who say "I miss (friend name) and I wanna talk to them" then go talk to them??? People like this make me feel like unwanted and I'm the last choice. </p>
 </details>
 
 
 
 
-<details>
- <summary>About me .<img width="33" height="30" alt="IMG_1614" src="https://github.com/user-attachments/assets/452d3dfc-e863-40ff-b013-a8e4d291c9d9" />
- 
- </summary>
-  <p> I am often careless . </p>
-  <p> I see myself as a slightly impatient person. </p>
-  <p>  Mirror-sharing Draco fictionkin and Kohlrabi cookie factkin. </p>
-  <p> I glaze Chester .  </a> </p>
-  <p> I snap at people easily, it depends on what they did. If it isn’t too serious , ill make it up for you.</p>
-  <p> I slowly isolate from people and ignore them if they start to get “boring” . Basically they do the same thing in never-ending circles. </p>
-  <p> I go as Leu, Jim and Draco, i am normally know as Leu and Jim, Draco is because i fictionkin him.</p>
-  <p> ISFP, wont interact with strangers much.  </p>
-  <p> Give me an heads up if we roleplay.</p>
-</details>
+
  
   <p>
   <p align="left">
