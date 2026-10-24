@@ -23,7 +23,7 @@ credits to artist
   <p>
   <p align="center">
 
-<a href="https://dragontamer.straw.page/home"> strawpage  </a>
+<a href="https://chesdraco.straw.page"> strawpage  </a>
 
 <a href="https://en.pronouns.page/@LeuLovesDraster"> outdated pns page  </a>
 
