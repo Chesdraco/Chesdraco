@@ -2,7 +2,7 @@
 <img width="1280" height="720" alt="Untitled227_20261024211919" src="https://github.com/user-attachments/assets/00974401-16e1-4e87-b0dc-67ede046cacd" />
 
 
-
+ $\color{#FFFFBF}{\normalsize{\texttt{ ﹒⌗﹒🐉 ﹒౨ৎ˚₊‧ CXH . W2IUF . }}}$ <br>
 
  
 
