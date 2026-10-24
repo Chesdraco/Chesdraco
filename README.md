@@ -19,7 +19,7 @@ $\color{#7E019F}{\normalsize{\texttt{ If i unfriend you it means you may not pla
  </summary>
   <p> Poker-faced or Two-faced people, i believe i do not need to explain why for this. </p>
   <p> People who joke about World War 2 , Epstein , Grape , Ice , SchoolShootings or any sorts serious cases you shouldn’t joke about. </p>
-  <p>C+H heavily encouraged, even if not stated! I love cudpiles and cuds <3 but do ask if I'm with friends. C+H+K is welcome aswell.</p>
+  <p>You like toxic yuri,yaoi or hetero ships but proceed to say you dislike darkshippers.</p>
   <p> <a href="https://dni-criteria.carrd.co"> Basic DNI Criteria  </a> </p>
   <p>People who whine about other people being in a legal and fine fandom. Let them have interests in what they want, make an expectation if they like problematic media. </p>
   <p> You aren’t open-minded </p>
