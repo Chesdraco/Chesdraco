@@ -13,7 +13,6 @@ credits to artist
   <tr>
     <td align="center">
       $\color{#FFFFBF}{\normalsize{\texttt{ 🟢/💬: freely interact .}}}$ <br>
-      <img src="atgvea.gif" /> <br>
        $\color{#FE805F}{\normalsize{\texttt{🎭:roleplaying . i dont usethis alot. }}}$ <br>
       $\color{#FF0185}{\normalsize{\texttt{⛔: busy , no / late resp }}}$ <br>
       $\color{#7E019F}{\normalsize{\texttt{DONT take inspo or copy off my skins}}}$ <br>
