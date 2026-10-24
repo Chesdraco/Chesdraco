@@ -12,12 +12,12 @@ credits to artist
 <table align="center">
   <tr>
     <td align="center">
-      $\color{#dc143c}{\normalsize{\texttt{ 🟢/💬: freely interact .}}}$ <br>
+      $\color{#FFFFBF}{\normalsize{\texttt{ 🟢/💬: freely interact .}}}$ <br>
       <img src="atgvea.gif" /> <br>
-       $\color{#f7b462}{\normalsize{\texttt{🎭:roleplaying . i dont usethis alot. }}}$ <br>
-      $\color{#577f24}{\normalsize{\texttt{⛔: busy , no / late resp }}}$ <br>
-      $\color{#d52828}{\normalsize{\texttt{DONT take inspo or copy off my skins}}}$ <br>
-      $\color{#796d91}{\normalsize{\texttt{ }}}$ <br>
+       $\color{#FE805F}{\normalsize{\texttt{🎭:roleplaying . i dont usethis alot. }}}$ <br>
+      $\color{#FF0185}{\normalsize{\texttt{⛔: busy , no / late resp }}}$ <br>
+      $\color{#7E019F}{\normalsize{\texttt{DONT take inspo or copy off my skins}}}$ <br>
+      $\color{#010066}{\normalsize{\texttt{ }}}$ <br>
       <p>
 
  
