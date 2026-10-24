@@ -1,4 +1,4 @@
-#  THIS IS BOUND TO CHANGE
+#  THIS WILL GET UPDATES FREQUENTLY. 
 <img width="1280" height="720" alt="Untitled227_20261024211919" src="https://github.com/user-attachments/assets/00974401-16e1-4e87-b0dc-67ede046cacd" />
 
 
@@ -64,7 +64,6 @@ $\color{#7E019F}{\normalsize{\texttt{ If i unfriend you it means you may not pla
   <p> People who argue with anyone over tiny reasons. Friends included. </p>
   <p> "Wallahi" joke users. I mean, you SHOULD know why I put this in the list. </p>
   <p> People who intentionally be rude to unfamiliar people. Don't ruin their first impression of you, please.</p>
-  <p> ISFP-Type, wont interact with strangers much.  </p>
   <p> People who say "I miss (friend name) and I wanna talk to them" then go talk to them??? People like this make me feel like unwanted and I'm the last choice. </p>
 </details>
 
@@ -82,4 +81,7 @@ $\color{#7E019F}{\normalsize{\texttt{ If i unfriend you it means you may not pla
 
 <a href="https://brawlstars.fandom.com/wiki/Chester"> ❦ first-favourite brawler page </a>
 <a href="https://brawlstars.fandom.com/wiki/Mandy"> ❦ second-favourite brawler page </a>
+
+
+
  
