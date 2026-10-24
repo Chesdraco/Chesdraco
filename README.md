@@ -14,7 +14,19 @@ $\color{#7E019F}{\normalsize{\texttt{ If i unfriend you it means you may not pla
 
 
 
-
+<details>
+ <summary>DNI<img width="30" height="30" alt="IMG_1242" src="https://github.com/user-attachments/assets/907e97d6-4a27-40af-839d-056b8f30e702" />
+ </summary>
+  <p> Poker-faced or Two-faced people, i believe i do not need to explain why for this. </p>
+  <p> People who joke about World War 2 , Epstein , Grape , Ice , SchoolShootings or any sorts serious cases you shouldn’t joke about. </p>
+  <p>C+H heavily encouraged, even if not stated! I love cudpiles and cuds <3 but do ask if I'm with friends. C+H+K is welcome aswell.</p>
+  <p> <a href="https://dni-criteria.carrd.co"> Basic DNI Criteria  </a> </p>
+  <p>People who whine about other people being in a legal and fine fandom. Let them have interests in what they want, make an expectation if they like problematic media. </p>
+  <p> You aren’t open-minded </p>
+  <p> You make fun of people for their disabilities.Well, unless they’re faking it.</p>
+  <p> Deliberate Boundary Breaking people. </p>
+  <p>People who ship REAL people with another real person,you guys are disgusting. </p>
+</details>
 
 
 
