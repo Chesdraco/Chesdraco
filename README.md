@@ -3,11 +3,11 @@
 
 
    <p align="center">
-$\color{#FFFFBF}{\normalsize{\texttt{ ﹒⌗﹒🐉 ﹒౨ৎ˚₊‧ CXH . W2IUF . }}}$ <br>
+$\color{#FFFFBF}{\normalsize{\texttt{ ﹒⌗﹒🐉 ﹒౨ৎ˚₊‧ CXH . W2IUF .  }}}$ <br>
       $\color{#FE805F}   {\normalsize{\texttt{── .✦ 13 years old . -10 DNI . Any/All , Genderfluid+Fae + Demiaroace . }}}$ <br> 
       $\color{#FF0185}{\normalsize{\texttt{⟡ ݁₊ . I go as Leu and Jim. You can call me by the character im cosplaying too.᭄᭡ ͏ ͏ ͏･ }}}$ <br>
       $\color{#9F18A3}{\normalsize{\texttt{Im not too harsh . Just be patient and follow my boundaries and you’ll be good.͙͘͡★ }}}$ <br>
-$\color{#7E019F}{\normalsize{\texttt{ If i unfriend you it means you may not play with me frequently or you . ͙͘roll for comedy with disadvantage๋࣭ ⭑  ﹒}}}$ <br>
+$\color{#7E019F}{\normalsize{\texttt{ If i unfriend or stop talking to you it means you may not play with me frequently or you roll for comedy with disadvantage.   ﹒}}}$ <br>
 
  
 <details>
@@ -23,6 +23,8 @@ $\color{#7E019F}{\normalsize{\texttt{ If i unfriend you it means you may not pla
   <p> I go as Leu, Jim and Draco on all platforms,i am normally know as Leu and Jim, Draco is because i fictionkin him.</p>
   <p> ISFP, wont interact with strangers much.  </p>
   <p> Give me an heads up if we roleplay.</p>
+  <p> DON’T ever cover me even if we’re moots.I can make an exception if you’re cuddling.</p>
+  <p> I disconnect alot, it’s kind of hard to stay constant on another tab while trying to do other stuff on another. If I disconnect and never come back, it means im revising or the task is really slow and takes time to do. </p>
 </details>
 
 <details>
