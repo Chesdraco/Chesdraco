@@ -20,7 +20,7 @@ $\color{#7E019F}{\normalsize{\texttt{ If i unfriend you it means you may not pla
   <p> I glaze Chester .  </a> </p>
   <p> I snap at people easily, it depends on what they did. If it isn’t too serious , ill make it up for you.</p>
   <p> I slowly isolate from people and ignore them if they start to get “boring” . Basically they do the same thing in never-ending circles. </p>
-  <p> I go as Leu, Jim and Draco, i am normally know as Leu and Jim, Draco is because i fictionkin him.</p>
+  <p> I go as Leu, Jim and Draco on all platforms,i am normally know as Leu and Jim, Draco is because i fictionkin him.</p>
   <p> ISFP, wont interact with strangers much.  </p>
   <p> Give me an heads up if we roleplay.</p>
 </details>
