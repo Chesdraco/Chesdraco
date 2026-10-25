@@ -75,16 +75,16 @@ $\color{#7E019F}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
 
  
-  <p>
-  <p align="left">
-
-<a href="https://chesdraco.straw.page"> strawpage  </a>
-
-<a href="https://madevilmanormoshpit.straw.page"> strawpage 2  </a>
-
-<a href="https://en.pronouns.page/@LeuLovesDraster"> outdated pns page  </a>
-
+  
+  <p align="center">
+<a href="https://chesdraco.straw.page">  ࿙.͜໒꒱strawpage  </a>
+  <p align="center">
+<a href="https://madevilmanormoshpit.straw.page">‧˚꒰🔥 ꒱༘‧— strawpage 2 ⋆˚࿔  </a>
+  <p align="center">
+<a href="https://en.pronouns.page/@LeuLovesDraster">  ࿙.໒꒱outdated pns page  </a>
+  <p align="center">
 <a href="https://brawlstars.fandom.com/wiki/Chester"> ❦ first-favourite brawler page </a>
+  <p align="center">
 <a href="https://brawlstars.fandom.com/wiki/Mandy"> ❦ second-favourite brawler page </a>
 
 
