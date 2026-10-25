@@ -28,7 +28,7 @@ $\color{#7E019F}{\normalsize{\texttt{ If i unfriend you it means you may not pla
 <details>
  <summary>Characters or things i like.<img width="32" height="30" alt="IMG_1241" src="https://github.com/user-attachments/assets/02dd98f2-a04c-4583-89ee-686370bd4788" />
  </summary>
-  <p> Well, Chester and Mandy of course .  </p>
+  <p> Well, Chester and Mandy of course .NOTTT THE SHIP  </p>
   <p> People who constantly talk to me, i like be entertained UNLESS im in a bad mood. </p>
   <p>My OTPS. Mandraster, Draster , Mandberry and Manddraco. </p>
   <p> My friends, platonically of course. </a> </p>
