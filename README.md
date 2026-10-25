@@ -1,4 +1,4 @@
-#  THIS WILL GET UPDATES FREQUENTLY.  Oh and this is best viewed on tablets
+#  THIS WILL GET UPDATES FREQUENTLY.  best viewed on tablets
 <img width="1280" height="720" alt="Untitled227_20261024211919" src="https://github.com/user-attachments/assets/00974401-16e1-4e87-b0dc-67ede046cacd" />
 
 
