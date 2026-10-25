@@ -45,7 +45,7 @@ $\color{#7E019F}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
  <summary>DNI<img width="30" height="30" alt="IMG_1242" src="https://github.com/user-attachments/assets/907e97d6-4a27-40af-839d-056b8f30e702" />
  </summary>
   <p> Poker-faced or Two-faced people, i believe i do not need to explain why for this. </p>
-  <p> People who joke about World War 2 , Epstein , Grape , Ice , SchoolShootings or any sorts serious cases you shouldn’t joke about. </p>
+  <p> People who joke about World War 2 , Epstein , Grape , Ice , SchoolShootings or any sorts of serious cases you shouldn’t joke about. </p>
   <p>You like toxic yuri,yaoi or hetero ships but proceed to say you dislike darkshippers.</p>
   <p> <a href="https://dni-criteria.carrd.co"> Basic DNI Criteria  </a> </p>
   <p>People who whine about other people being in a legal and fine fandom. Let them have interests in what they want, make an expectation if they like problematic media. </p>
