@@ -51,6 +51,7 @@ $\color{#7E019F}{\normalsize{\texttt{ If i unfriend you it means you may not pla
   <p> You make fun of people for their disabilities.Well, unless they’re faking it.</p>
   <p> Deliberate Boundary Breaking people. </p>
   <p>People who ship REAL people with another real person,you guys are disgusting. </p>
+   <p>Chesfang shippers. Some of you guys are genuinely irritating and frustrating. If you dont bash people for pairing chester up with someone else, this goes in the iwc list. </p>
 </details>
 
 
