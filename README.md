@@ -77,6 +77,8 @@ $\color{#7E019F}{\normalsize{\texttt{ If i unfriend you it means you may not pla
 
 <a href="https://chesdraco.straw.page"> strawpage  </a>
 
+<a href="https://madevilmanormoshpit.straw.page"> strawpage 2  </a>
+
 <a href="https://en.pronouns.page/@LeuLovesDraster"> outdated pns page  </a>
 
 <a href="https://brawlstars.fandom.com/wiki/Chester"> ❦ first-favourite brawler page </a>
