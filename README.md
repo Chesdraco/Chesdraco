@@ -30,7 +30,8 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 </details>
 
 <details>
- <summary>Characters or things i like.<img width="32" height="30" alt="IMG_1241" src="https://github.com/user-attachments/assets/02dd98f2-a04c-4583-89ee-686370bd4788" />
+ <summary>Characters or things i like.<img width="51" height="46" alt="IMG_1626" src="https://github.com/user-attachments/assets/b55f973e-fca7-4709-8e56-4bf082f16262" />
+
  </summary>
   <p> Well, Chester and Mandy of course .NOTTT THE SHIP  </p>
   <p> People who constantly talk to me, i like be entertained UNLESS im in a bad mood. </p>
