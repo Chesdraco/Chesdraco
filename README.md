@@ -81,8 +81,8 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
 
 
-<p align="center"><img width="291" height="413" alt="IMG_1635" src="https://github.com/user-attachments/assets/b53c0e3c-c52b-48ad-9e9f-bd42a6409458" />
-<p align="center"><img width="342" height="412" alt="IMG_1631" src="https://github.com/user-attachments/assets/f593fbba-f256-4684-9a8a-891a4cbe7cce" />
+<img width="291" height="413" alt="IMG_1635" src="https://github.com/user-attachments/assets/b53c0e3c-c52b-48ad-9e9f-bd42a6409458" />
+<img width="342" height="412" alt="IMG_1631" src="https://github.com/user-attachments/assets/f593fbba-f256-4684-9a8a-891a4cbe7cce" />
 
 
  
