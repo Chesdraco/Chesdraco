@@ -103,14 +103,14 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 <a href="https://brawlstars.fandom.com/wiki/Chester"> ❦ first-favourite brawler page </a>
   <p align="center">
 <a href="https://brawlstars.fandom.com/wiki/Mandy"> ❦ second-favourite brawler page </a>
-<p align="right">
-<img width="442" height="512" alt="IMG_1631" src="https://github.com/user-attachments/assets/f593fbba-f256-4684-9a8a-891a4cbe7cce" />
 
 <p align="center">
 <img width="200" height="200" alt="Untitled229_20261023150941" src="https://github.com/user-attachments/assets/b0e1f441-dd98-4daa-931e-8fb603fe0ed4" />
 <p align="center">
 <img width="200" height="200" alt="Untitled229_20261023151104" src="https://github.com/user-attachments/assets/ef5104f3-7b90-40bb-96b2-ede18b63336c" />
 
+<p align="right">
+<img width="442" height="512" alt="IMG_1631" src="https://github.com/user-attachments/assets/f593fbba-f256-4684-9a8a-891a4cbe7cce" />
 
 <img width="1280" height="502" alt="Untitled248_20261026174456" src="https://github.com/user-attachments/assets/6eac9837-5abf-4eb5-b5be-f76705dc1594" />
 
