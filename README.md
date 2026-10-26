@@ -58,7 +58,8 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
 
 <details> 
-   <summary>IWEC<img width="43" height="20" alt="IMG_1621" src="https://github.com/user-attachments/assets/b2349d79-47f3-4008-aef8-febaf316112d" />
+   <summary>IWEC<img width="30" height="28" alt="IMG_1623" src="https://github.com/user-attachments/assets/54adafe9-b0c3-4c48-ba7d-eea803237246" />
+
 
  </summary>
   <p> 15+ people. </p>
