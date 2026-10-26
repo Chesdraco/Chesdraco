@@ -58,7 +58,8 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
 
 <details> 
-   <summary>IWEC<img width="32" height="30" alt="1000026633" src="https://github.com/user-attachments/assets/9e9fc4bf-6d94-4d58-9db3-52af88b54c98" /> 
+   <summary>IWEC<img width="43" height="40" alt="IMG_1621" src="https://github.com/user-attachments/assets/b2349d79-47f3-4008-aef8-febaf316112d" />
+
  </summary>
   <p> 15+ people. </p>
   <p> Cheslawrie, Melochester shippers. I believe lawrie would DESPISE chester. I headcanon melodie and chester as siblings. Sorry if you don't like it. </p>
