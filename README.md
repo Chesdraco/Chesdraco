@@ -11,7 +11,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
  
 <details>
- <summary>About me .<img width="42" height="40" alt="IMG_1631" src="https://github.com/user-attachments/assets/3b459165-5eaa-42a7-a2a8-b064eb03793c" />
+ <summary>About me .<img width="52" height="58" alt="IMG_1631" src="https://github.com/user-attachments/assets/3b459165-5eaa-42a7-a2a8-b064eb03793c" />
 
 
  
@@ -30,7 +30,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 </details>
 
 <details>
- <summary>Characters or things i like.<img width="42" height="40" alt="IMG_1626" src="https://github.com/user-attachments/assets/b55f973e-fca7-4709-8e56-4bf082f16262" />
+ <summary>Characters or things i like.<img width="52" height="48" alt="IMG_1626" src="https://github.com/user-attachments/assets/b55f973e-fca7-4709-8e56-4bf082f16262" />
 
  </summary>
   <p> Well, Chester and Mandy of course .NOTTT THE SHIP  </p>
@@ -45,23 +45,26 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 </details>
 
 <details>
- <summary>DNI<img width="30" height="30" alt="IMG_1242" src="https://github.com/user-attachments/assets/907e97d6-4a27-40af-839d-056b8f30e702" />
+ <summary>DNI<img width="42" height="38" alt="IMG_1636" src="https://github.com/user-attachments/assets/eb2f5229-8999-41be-b66d-3e023db69684" />
+
  </summary>
   <p> Poker-faced or Two-faced people, i believe i do not need to explain why for this. </p>
   <p> People who joke about World War 2 , Epstein , Grape , Ice , SchoolShootings or any sorts of serious cases you shouldn’t joke about. </p>
-  <p>You like toxic yuri,yaoi or hetero ships but proceed to say you dislike darkshippers.</p>
+  <p>You like toxic yuri,yaoi or hetero ships but proceed to say youre anti darkshippers.</p>
   <p> <a href="https://dni-criteria.carrd.co"> Basic DNI Criteria  </a> </p>
   <p>People who whine about other people being in a legal and fine fandom. Let them have interests in what they want, make an expectation if they like problematic media. </p>
   <p> You aren’t open-minded </p>
   <p> You make fun of people for their disabilities.Well, unless they’re faking it.</p>
   <p> Deliberate Boundary Breaking people. </p>
-  <p>People who ship REAL people with another real person,you guys are disgusting. </p>
+  <p>People who ship REAL people with another real person,you guys are disgusting.<img width="52" height="58" alt="IMG_1627" src="https://github.com/user-attachments/assets/13d23d08-b2ab-4753-9134-c72b0bfe1ebc" />
+ </p>
    <p>Chesfang shippers. Some of you guys are genuinely irritating and frustrating. If you dont bash people for pairing chester up with someone else, this goes in the iwc list. This is also because of a first impression i had with one .</p>
 </details>
 
 
 <details> 
-   <summary>IWEC<img width="40" height="38" alt="IMG_1623" src="https://github.com/user-attachments/assets/54adafe9-b0c3-4c48-ba7d-eea803237246" />
+   <summary>IWEC<img width="45" height="41" alt="IMG_1628" src="https://github.com/user-attachments/assets/fd1f183e-2b10-46fa-99fe-0beb12b8996d" />
+
 
 
  </summary>
