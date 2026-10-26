@@ -86,9 +86,11 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
 <img width="1000" height="124" alt="Untitled247_20261026174123" src="https://github.com/user-attachments/assets/50437600-c02c-4e61-b42e-a0c01f1e46a9" />
 
-<p align="left"> <img width="391" height="513" alt="IMG_1635" src="https://github.com/user-attachments/assets/b53c0e3c-c52b-48ad-9e9f-bd42a6409458" /> <p align="center"><img width="200" height="200" alt="Untitled229_20261023144338" src="https://github.com/user-attachments/assets/200c59ed-117f-41bb-821c-d797b75f3e6f" />
-  <p align="center">  
-<img width="200" height="200" alt="Untitled229_20261023144118" src="https://github.com/user-attachments/assets/0ba40a84-b47b-4719-8152-c094be506782" />
+<p align="left"> <img width="391" height="513" alt="IMG_1635" src="https://github.com/user-attachments/assets/b53c0e3c-c52b-48ad-9e9f-bd42a6409458" /> 
+
+<p align="center">
+    <img width="200" height="200" alt="Untitled229_20261023144338" src="https://github.com/user-attachments/assets/f036d0f2-de9c-4ae6-94ff-f0cde5f6c7f7" />
+    <img width="200" height="200" alt="Untitled229_20261023144118" src="https://github.com/user-attachments/assets/d5f33f05-1e9b-462a-9eaf-e0548e45903c" />
 
                                                                                                                                         
 
