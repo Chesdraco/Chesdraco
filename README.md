@@ -11,7 +11,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
  
 <details>
- <summary>About me .<img width="44" height="51" alt="IMG_1631" src="https://github.com/user-attachments/assets/3b459165-5eaa-42a7-a2a8-b064eb03793c" />
+ <summary>About me .<img width="66" height="73" alt="IMG_1631" src="https://github.com/user-attachments/assets/3b459165-5eaa-42a7-a2a8-b064eb03793c" />
 
 
  
