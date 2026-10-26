@@ -11,7 +11,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
  
 <details>
- <summary>About me .<img width="55" height="63" alt="IMG_1631" src="https://github.com/user-attachments/assets/3b459165-5eaa-42a7-a2a8-b064eb03793c" />
+ <summary>About me .<img width="42" height="40" alt="IMG_1631" src="https://github.com/user-attachments/assets/3b459165-5eaa-42a7-a2a8-b064eb03793c" />
 
 
  
@@ -30,7 +30,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 </details>
 
 <details>
- <summary>Characters or things i like.<img width="51" height="46" alt="IMG_1626" src="https://github.com/user-attachments/assets/b55f973e-fca7-4709-8e56-4bf082f16262" />
+ <summary>Characters or things i like.<img width="42" height="40" alt="IMG_1626" src="https://github.com/user-attachments/assets/b55f973e-fca7-4709-8e56-4bf082f16262" />
 
  </summary>
   <p> Well, Chester and Mandy of course .NOTTT THE SHIP  </p>
