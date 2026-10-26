@@ -85,8 +85,13 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
 
 <img width="1000" height="124" alt="Untitled247_20261026174123" src="https://github.com/user-attachments/assets/50437600-c02c-4e61-b42e-a0c01f1e46a9" />
-<p align="left">
- <img width="291" height="413" alt="IMG_1635" src="https://github.com/user-attachments/assets/b53c0e3c-c52b-48ad-9e9f-bd42a6409458" />
+
+<p align="left"> <img width="391" height="513" alt="IMG_1635" src="https://github.com/user-attachments/assets/b53c0e3c-c52b-48ad-9e9f-bd42a6409458" /> <p align="right"><img width="200" height="200" alt="Untitled229_20261023144338" src="https://github.com/user-attachments/assets/200c59ed-117f-41bb-821c-d797b75f3e6f" />
+  <p align="right">  
+<img width="200" height="200" alt="Untitled229_20261023144118" src="https://github.com/user-attachments/assets/0ba40a84-b47b-4719-8152-c094be506782" />
+
+                                                                                                                                        
+
   
   <p align="center">
 <a href="https://chesdraco.straw.page">  ࿙.͜໒꒱strawpage  </a>
@@ -100,7 +105,12 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 <a href="https://brawlstars.fandom.com/wiki/Mandy"> ❦ second-favourite brawler page </a>
 
 <p align="right">
-<img width="342" height="412" alt="IMG_1631" src="https://github.com/user-attachments/assets/f593fbba-f256-4684-9a8a-891a4cbe7cce" />
+<img width="442" height="512" alt="IMG_1631" src="https://github.com/user-attachments/assets/f593fbba-f256-4684-9a8a-891a4cbe7cce" />
+
+<p align="left">
+<img width="200" height="200" alt="Untitled229_20261023150941" src="https://github.com/user-attachments/assets/b0e1f441-dd98-4daa-931e-8fb603fe0ed4" />
+<p align="left">
+<img width="200" height="200" alt="Untitled229_20261023151104" src="https://github.com/user-attachments/assets/ef5104f3-7b90-40bb-96b2-ede18b63336c" />
 
 
 <img width="1280" height="502" alt="Untitled248_20261026174456" src="https://github.com/user-attachments/assets/6eac9837-5abf-4eb5-b5be-f76705dc1594" />
