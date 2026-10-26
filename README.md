@@ -19,7 +19,8 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
   <p> I am often careless . </p>
   <p> I see myself as a slightly impatient person. </p>
   <p>  Mirror-sharing Draco fictionkin and Kohlrabi cookie factkin. </p>
-  <p> I glaze Chester .  </a> </p>
+  <p> I glaze Chester .
+  </a> </p>
   <p> I snap at people easily, it depends on what they did. If it isn’t too serious , ill make it up for you.</p>
   <p> I slowly isolate from people and ignore them if they start to get “boring” . Basically they do the same thing in never-ending circles. </p>
   <p> I go as Leu, Jim and Draco on all platforms,i am normally know as Leu and Jim, Draco is because i fictionkin him.</p>
@@ -80,6 +81,9 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
 
 
+<img width="191" height="313" alt="IMG_1635" src="https://github.com/user-attachments/assets/b53c0e3c-c52b-48ad-9e9f-bd42a6409458" />
+<img width="242" height="312" alt="IMG_1631" src="https://github.com/user-attachments/assets/f593fbba-f256-4684-9a8a-891a4cbe7cce" />
+<img width="299" height="312" alt="IMG_1637" src="https://github.com/user-attachments/assets/95b1c012-77af-435a-a115-d7bced3ee1f4" />
 
 
  
