@@ -19,7 +19,8 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
   <p> I am often careless . </p>
   <p> I see myself as a slightly impatient person. </p>
   <p>  Mirror-sharing Draco fictionkin and Kohlrabi cookie factkin. </p>
-  <p> I glaze Chester .
+  <p> I glaze Chester .<img width="42" height="51" alt="IMG_1653" src="https://github.com/user-attachments/assets/14f10e91-6eb2-4ae8-b820-e0037b463365" />
+
   </a> </p>
   <p> I snap at people easily, it depends on what they did. If it isn’t too serious , ill make it up for you.</p>
   <p> I slowly isolate from people and ignore them if they start to get “boring” . Basically they do the same thing in never-ending circles. </p>
