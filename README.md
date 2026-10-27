@@ -116,7 +116,9 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 <p align="right">
 <img width="442" height="512" alt="IMG_1631" src="https://github.com/user-attachments/assets/f593fbba-f256-4684-9a8a-891a4cbe7cce" />
 
-<img width="2048" height="805" alt="Untitled251_20261027151910" src="https://github.com/user-attachments/assets/b1ddd615-3cba-4d40-841f-780782131bea" />
+<img width="2048" height="805" alt="Untitled251_20261027151902" src="https://github.com/user-attachments/assets/ccb9d747-8ec4-4063-8f9a-7dabc7c05409" />
+<p align="center">
 
+<img width="700" height="700" alt="IMG_1645" src="https://github.com/user-attachments/assets/ae6d6bfa-026a-48fc-bd7d-891aff5c2153" />
 
  
