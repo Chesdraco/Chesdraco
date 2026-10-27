@@ -21,23 +21,35 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
   <p> I see myself as a slightly impatient person. </p>
 
+
+
   <p>  Mirror-sharing Draco fictionkin and Kohlrabi cookie factkin. </p>
 
+
+
   <p> I glaze Chester .<img width="42" height="51" alt="IMG_1653" src="https://github.com/user-attachments/assets/14f10e91-6eb2-4ae8-b820-e0037b463365" />  </a> </p>
+
+
  
   <p> I snap at people easily, it depends on what they did. If it isn’t too serious , ill make it up for you.</p>
+
+
  
   <p> I slowly isolate from people and ignore them if they start to get “boring” . Basically they do the same thing in never-ending circles. </p>
 
+
   <p> I go as Leu, Jim and Draco on all platforms,i am normally know as Leu and Jim, Draco is because i fictionkin him.<img width="43" height="51" alt="IMG_1662" src="https://github.com/user-attachments/assets/fcfaf9d5-d32d-432a-b620-a4ffa6eb58e8" />
 </p>
+
  
   <p> ISFP, wont interact with strangers much.<img width="31" height="51" alt="IMG_1629" src="https://github.com/user-attachments/assets/2a5766d7-336b-47c7-b338-9d7d315d9bb1" />
   </p>
  
   <p> Give me an heads up if we roleplay.</p>
 
+
   <p> DON’T ever cover me even if we’re moots.I can make an exception if you’re cuddling.</p>
+
 
   <p> I disconnect alot, it’s kind of hard to stay constant on another tab while trying to do other stuff on another. If I disconnect and never come back, it means im revising or the task is really slow and takes time to do. </p>
 </details>
@@ -47,19 +59,27 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
  </summary>
   <p> Well, Chester and Mandy of course .NOTTT THE SHIP  </p>
+
  
   <p> People who constantly talk to me, i like be entertained UNLESS im in a bad mood. </p>
 
+
   <p>My OTPS. Mandraster, Draster , Mandberry and Manddraco. </p>
+
 
   <p> My friends, platonically of course. </a> </p>
 
+
   <p> People who cuddle or interact with me. Well, of course NOT if they roleplay sexually with me. </p>
+
   <p> Drawing if i don’t have artblock. </p>
+
 
   <p> Rock or Metal songs , kind of .</p>
 
+
   <p> EXTREMELY patient people. </p>
+
 
   <p> CRTOA, Brawl stars and Wildcraft. </p>
 </details>
@@ -69,23 +89,31 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
  </summary>
   <p> Poker-faced or Two-faced people, i believe i do not need to explain why for this. </p>
+
  
   <p> People who joke about World War 2 , Epstein , Grape , Ice , SchoolShootings or any sorts of serious cases you shouldn’t joke about. </p>
+
   
   <p>You like toxic yuri,yaoi or hetero ships but proceed to say youre anti darkshippers.</p>
+
  
   <p> <a href="https://dni-criteria.carrd.co"> Basic DNI Criteria  </a> </p>
 
+
   <p>People who whine about other people being in a legal and fine fandom. Let them have interests in what they want, make an expectation if they like problematic media. </p>
+
 
   <p> You aren’t open-minded </p>
 
+
   <p> You make fun of people for their disabilities.Well, unless they’re faking it.</p>
+
 
   <p> Deliberate Boundary Breaking people. </p>
 
   <p>People who ship REAL people with another real person,you guys are disgusting.<img width="52" height="58" alt="IMG_1627" src="https://github.com/user-attachments/assets/13d23d08-b2ab-4753-9134-c72b0bfe1ebc" />
  </p>
+
    <p>Chesfang shippers. Some of you guys are genuinely irritating and frustrating. If you dont bash people for pairing chester up with someone else, this goes in the iwc list. This is also because of a first impression i had with one .</p>
 </details>
 
