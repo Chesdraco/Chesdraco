@@ -84,7 +84,8 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
 
 <details> 
-   <summary> Do Not Befriend <img width="41" height="51" alt="IMG_1659" src="https://github.com/user-attachments/assets/b5a04ae1-13dc-497d-840e-243c46e24ddb" />
+   <summary> Do Not Befriend <img width="39" height="51" alt="IMG_1627" src="https://github.com/user-attachments/assets/273d8e98-ef22-4f82-b0de-ff4dfc80422c" />
+
  </summary>
     <p> JUST TO CLARIFY MAJORITY OF THESE ARE IN THE DNI OR IWEC LIST </p>
   <p> +30 in age terms </p>
