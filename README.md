@@ -85,7 +85,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
 
 <details> 
-   <summary> Do Not Befriend <img width="51" height="61" alt="IMG_1659" src="https://github.com/user-attachments/assets/34ce75dc-076f-47b0-9ce5-23551fdb5570" />
+   <summary> Do Not Befriend<img width="49" height="61" alt="IMG_1627" src="https://github.com/user-attachments/assets/961ec8db-daf6-4985-815b-223bb6269f25" />
 
 
  </summary>
