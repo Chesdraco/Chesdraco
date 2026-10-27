@@ -159,7 +159,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
   <p> You spread rumors about people online . </a> </p>
 
-  <p> You support or use copytown.<img width="21" height="18" alt="IMG_1632" src="https://github.com/user-attachments/assets/845dbb7e-b4d9-474e-8507-5da9fac07497" />
+  <p> You support or use copytown.<img width="31" height="48" alt="IMG_1632" src="https://github.com/user-attachments/assets/845dbb7e-b4d9-474e-8507-5da9fac07497" />
  </p>
 
   <p> Egoistic, judgemental and competitive (for everything) people. </p>
