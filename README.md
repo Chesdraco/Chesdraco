@@ -27,7 +27,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
 
 
-  <p> I glaze Chester .<img width="42" height="51" alt="IMG_1653" src="https://github.com/user-attachments/assets/14f10e91-6eb2-4ae8-b820-e0037b463365" />  </a> </p>
+  <p> I glaze Chester .<img width="22" height="31" alt="IMG_1653" src="https://github.com/user-attachments/assets/14f10e91-6eb2-4ae8-b820-e0037b463365" />  </a> </p>
 
 
  
@@ -42,7 +42,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 </p>
 
  
-  <p> ISFP, wont interact with strangers much.<img width="31" height="51" alt="IMG_1629" src="https://github.com/user-attachments/assets/2a5766d7-336b-47c7-b338-9d7d315d9bb1" />
+  <p> ISFP, wont interact with strangers much.<img width="21" height="31" alt="IMG_1629" src="https://github.com/user-attachments/assets/2a5766d7-336b-47c7-b338-9d7d315d9bb1" />
   </p>
  
   <p> Give me an heads up if we roleplay.</p>
