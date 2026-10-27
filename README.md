@@ -82,6 +82,22 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
 
 
+<details> 
+   <summary> Do Not Befriend <img width="41" height="51" alt="IMG_1659" src="https://github.com/user-attachments/assets/b5a04ae1-13dc-497d-840e-243c46e24ddb" />
+ </summary>
+    <p> JUST TO CLARIFY MAJORITY OF THESE ARE IN THE DNI OR IWEC LIST </p>
+  <p> +30 in age terms </p>
+  <p> People who only friend popular / underrated artists to get fanart  </p>
+  <p> You play the victim in serious situations . High risk NO reward 😭</p>
+  <p> You spread rumors about people online . </a> </p>
+  <p> You support or use copytown.<img width="51" height="48" alt="IMG_1632" src="https://github.com/user-attachments/assets/845dbb7e-b4d9-474e-8507-5da9fac07497" />
+ </p>
+  <p> Egoistic, judgemental and competitive (for everything) people. </p>
+  <p> You make sexual jokes until they get repulsive. (if i allow it) </p>
+  <p> You call people who make Nsfw art problematic. It’s okay UNTIL it’s a character whos a minor,incest or any other disgusting terms. </p>
+ <p> You don’t talk to me AT ALL as a moot. It’s either ill unfriend you or speak to you about it.</p>
+</details>
+
 
    [![Typing SVG](https://readme-typing-svg.demolab.com?font=Cinzel+Decorative&size=14&duration=2800&pause=20&color=BF023F&width=435&lines=Uno%2C+dos%2C+tres%2C+cuatro%2C+cinco%2C+cinco%2C+seis;You+know+its+kind+of+hard+just+to+get+along+today;Our+subject+isnt+cool;but+he+fakes+it+anyway;He+may+not+have+a+clue;He+may+not+have+style;But+everything+he+lacks;WELL+HE+MAKES+UP+IN+DENIAL;SO+DONT+DEBATE+A+PLAYER+STRAIGHT;YOU+KNOW+HE+REALLY+DOESNT++GET+IT+ANYWAY;HES+GONNA+PLAY+THE+FIELD;AND+KEEP+IT+REAL;FOR+YOU+NO+WAY+%2C+FOR+YOU+NO+WAY+;SO+IF+YOU+DONT+RATE;JUST+OVERCOMPENSATE+;ATLEAST+YOU+KNOW+YOU+CAN+ALWAYS+GO+ON+RICKI+LANE;THE+WORLD+NEEDS+WANNABES;SO+HEY+HEY+DO+THAT+BRAND+NEW+THING)](https://git.io/typing-svg)
 
