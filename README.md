@@ -65,7 +65,8 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
 
 <details> 
-   <summary>IWEC<img width="69" height="73" alt="IMG_1628" src="https://github.com/user-attachments/assets/fd1f183e-2b10-46fa-99fe-0beb12b8996d" />
+   <summary>IWEC<img width="37" height="51" alt="IMG_1628" src="https://github.com/user-attachments/assets/d72ded5d-8682-415f-b506-09ae356548cb" />
+
 
 
 
@@ -84,7 +85,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
 
 <details> 
-   <summary> Do Not Befriend <img width="39" height="51" alt="IMG_1627" src="https://github.com/user-attachments/assets/273d8e98-ef22-4f82-b0de-ff4dfc80422c" />
+   <summary> Do Not Befriend <img width="69" height="71" alt="IMG_1627" src="https://github.com/user-attachments/assets/273d8e98-ef22-4f82-b0de-ff4dfc80422c" />
 
  </summary>
     <p> JUST TO CLARIFY MAJORITY OF THESE ARE IN THE DNI OR IWEC LIST </p>
