@@ -111,7 +111,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
   <p> Deliberate Boundary Breaking people. </p>
 
-  <p>People who ship REAL people with another real person,you guys are disgusting.<img width="52" height="58" alt="IMG_1627" src="https://github.com/user-attachments/assets/13d23d08-b2ab-4753-9134-c72b0bfe1ebc" />
+  <p>People who ship REAL people with another real person,you guys are disgusting.<img width="22" height="38" alt="IMG_1627" src="https://github.com/user-attachments/assets/13d23d08-b2ab-4753-9134-c72b0bfe1ebc" />
  </p>
 
    <p>Chesfang shippers. Some of you guys are genuinely irritating and frustrating. If you dont bash people for pairing chester up with someone else, this goes in the iwc list. This is also because of a first impression i had with one .</p>
@@ -119,7 +119,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
 
 <details> 
-   <summary>IWEC<img width="47" height="61" alt="IMG_1628" src="https://github.com/user-attachments/assets/d72ded5d-8682-415f-b506-09ae356548cb" />
+   <summary>IWEC<img width="57" height="61" alt="IMG_1628" src="https://github.com/user-attachments/assets/d72ded5d-8682-415f-b506-09ae356548cb" />
 
 
 
@@ -159,7 +159,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
   <p> You spread rumors about people online . </a> </p>
 
-  <p> You support or use copytown.<img width="51" height="48" alt="IMG_1632" src="https://github.com/user-attachments/assets/845dbb7e-b4d9-474e-8507-5da9fac07497" />
+  <p> You support or use copytown.<img width="21" height="18" alt="IMG_1632" src="https://github.com/user-attachments/assets/845dbb7e-b4d9-474e-8507-5da9fac07497" />
  </p>
 
   <p> Egoistic, judgemental and competitive (for everything) people. </p>
