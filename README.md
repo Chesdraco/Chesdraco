@@ -38,7 +38,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
   <p> I slowly isolate from people and ignore them if they start to get “boring” . Basically they do the same thing in never-ending circles. </p>
 
 
-  <p> I go as Leu, Jim and Draco on all platforms,i am normally know as Leu and Jim, Draco is because i fictionkin him.<img width="43" height="51" alt="IMG_1662" src="https://github.com/user-attachments/assets/fcfaf9d5-d32d-432a-b620-a4ffa6eb58e8" />
+  <p> I go as Leu, Jim and Draco on all platforms,i am normally know as Leu and Jim, Draco is because i fictionkin him.<img width="23" height="31" alt="IMG_1662" src="https://github.com/user-attachments/assets/fcfaf9d5-d32d-432a-b620-a4ffa6eb58e8" />
 </p>
 
  
