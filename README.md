@@ -59,6 +59,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
   <p> DON’T ever cover me even if we’re moots.I can make an exception if you’re cuddling.</p>
 
+<p> ask to moot i dont accept random friend and party requests  </p>
 
   <p>  If you suddenly call me out on recognising my skin i might not respond from confusion 😭 IM SO SORRY IF I DID THAT </p>
 
