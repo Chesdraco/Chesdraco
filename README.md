@@ -208,6 +208,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 <img width="2048" height="805" alt="Untitled251_20261027151902" src="https://github.com/user-attachments/assets/ccb9d747-8ec4-4063-8f9a-7dabc7c05409" />
 <p align="center">
 
+# placeholder
 <img width="700" height="700" alt="IMG_1645" src="https://github.com/user-attachments/assets/ae6d6bfa-026a-48fc-bd7d-891aff5c2153" />
 
  
