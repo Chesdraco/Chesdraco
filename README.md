@@ -55,6 +55,8 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
   <p> DON’T ever cover me even if we’re moots.I can make an exception if you’re cuddling.</p>
 
 
+  <p>  If you suddenly call me out on recognising my skin i might not respond from confusion 😭 IM SO SORRY IF I DID THAT </p>
+
   <p> I disconnect alot, it’s kind of hard to stay constant on another tab while trying to do other stuff on another. If I disconnect and never come back, it means im revising or the task is really slow and takes time to do. </p>
     <p> I can be sweet at first but i promise you im a total jerk </p>
 </details>
