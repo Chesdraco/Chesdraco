@@ -24,6 +24,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
   <p> I see myself as a slightly impatient person. </p>
 
+<p> ENCOURAGED CUDDLES, HUGS , INTERACTING (still w2iuf pls) , NUZZLES . you can c+h without tslking to me too its alright as i dont really talk much  </p>
 
  <p> I have trust issues </p>
 
