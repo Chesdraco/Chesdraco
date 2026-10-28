@@ -3,7 +3,11 @@
 
 <img width="1280" height="720" alt="Untitled227_20261024211919" src="https://github.com/user-attachments/assets/00974401-16e1-4e87-b0dc-67ede046cacd" />
 
-
+  
+     
+ ⠀ ⠀ ⠀ ⠀
+ 
+⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀  ![visitors](https://visitor-badge.laobi.icu/badge?page_id=https%3A%2F%2Fgithub.com%2FMASTEROFMETAL&left_text=%E1%AF%93%E2%98%85&left_color=%23ff0185&right_color=%237e019f) 
 
    <p align="center">
 $\color{#FFFFBF}{\normalsize{\texttt{ ﹒⌗﹒🐉 ﹒౨ৎ˚₊‧ CXH ENC . W2IUF .  }}}$ <br>
