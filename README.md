@@ -25,6 +25,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
   <p> I see myself as a slightly impatient person. </p>
 
 
+ <p> I have trust issues </p>
 
   <p>  Mirror-sharing Draco fictionkin and Kohlrabi cookie factkin. </p>
 
