@@ -185,8 +185,8 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
  <p> You don’t talk to me AT ALL as a moot. It’s either ill unfriend you or speak to you about it.</p>
 </details>
 
-
-   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Cinzel+Decorative&size=14&duration=2800&pause=20&color=BF023F&width=435&lines=Uno%2C+dos%2C+tres%2C+cuatro%2C+cinco%2C+cinco%2C+seis;You+know+its+kind+of+hard+just+to+get+along+today;Our+subject+isnt+cool;but+he+fakes+it+anyway;He+may+not+have+a+clue;He+may+not+have+style;But+everything+he+lacks;WELL+HE+MAKES+UP+IN+DENIAL;SO+DONT+DEBATE+A+PLAYER+STRAIGHT;YOU+KNOW+HE+REALLY+DOESNT++GET+IT+ANYWAY;HES+GONNA+PLAY+THE+FIELD;AND+KEEP+IT+REAL;FOR+YOU+NO+WAY+%2C+FOR+YOU+NO+WAY+;SO+IF+YOU+DONT+RATE;JUST+OVERCOMPENSATE+;ATLEAST+YOU+KNOW+YOU+CAN+ALWAYS+GO+ON+RICKI+LANE;THE+WORLD+NEEDS+WANNABES;SO+HEY+HEY+DO+THAT+BRAND+NEW+THING)](https://git.io/typing-svg)
+<p align="center">
+  <img width="150" height="20" alt="IMG_1675" src="https://github.com/user-attachments/assets/647a0c38-28cf-4091-9e89-1fae9e496c72" />
 
 
 <img width="1000" height="124" alt="Untitled247_20261026174123" src="https://github.com/user-attachments/assets/50437600-c02c-4e61-b42e-a0c01f1e46a9" />
