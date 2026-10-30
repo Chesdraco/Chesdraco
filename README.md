@@ -244,7 +244,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 <img width="200" height="200" alt="IMG_1645" src="https://github.com/user-attachments/assets/ae6d6bfa-026a-48fc-bd7d-891aff5c2153" />
 
 
-
+<p align="right">
 <a href="https://github.com/pt-everypony"> pt-everypony࿙ </a>
 
 <img width="2048" height="805" alt="Untitled251_20261027151910" src="https://github.com/user-attachments/assets/9ccdba2f-d294-4a43-9b75-84441f26848a" />
