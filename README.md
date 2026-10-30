@@ -184,9 +184,14 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
  <p> You don’t talk to me AT ALL as a moot. It’s either ill unfriend you or speak to you about it.</p>
 </details>
-
 <p align="center">
-  <img width="150" height="20" alt="IMG_1675" src="https://github.com/user-attachments/assets/647a0c38-28cf-4091-9e89-1fae9e496c72" />
+<img width="400" height="54" alt="IMG_1684" src="https://github.com/user-attachments/assets/8c09c796-37b9-4896-b430-48a0a2fc4d51" />
+<img width="400" height="104" alt="IMG_1683" src="https://github.com/user-attachments/assets/335bcf53-6068-4f6e-a670-2e8c84f294b5" />
+<img width="400" height="104" alt="IMG_1682" src="https://github.com/user-attachments/assets/8601a6e9-19df-440a-b6cd-81c31dc1c007" />
+<img width="400" height="54" alt="IMG_1681" src="https://github.com/user-attachments/assets/98fd21ac-38c2-4426-b695-90e088eed46f" />
+<img width="400" height="104" alt="IMG_1680" src="https://github.com/user-attachments/assets/6ec688b3-b08d-44f5-b4bf-ee60ef8a5f90" />
+
+
 
 
 <img width="1000" height="124" alt="Untitled247_20261026174123" src="https://github.com/user-attachments/assets/50437600-c02c-4e61-b42e-a0c01f1e46a9" />
