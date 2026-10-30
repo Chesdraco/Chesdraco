@@ -154,6 +154,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
   <p> People who intentionally be rude to unfamiliar people. Don't ruin their first impression of you, please.</p>
 
   <p> People who say "I miss (friend name) and I wanna talk to them" then go talk to them??? People like this make me feel like unwanted and I'm the last choice. </p>
+<p> chester fictionkins we will NOT get along i fear 😭</p>
 </details>
 
 
@@ -184,6 +185,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
  <p> You don’t talk to me AT ALL as a moot. It’s either ill unfriend you or speak to you about it.</p>
 </details>
+<p align="center">
  <img width="400" height="54" alt="IMG_1684" src="https://github.com/user-attachments/assets/89fb549a-ed11-40fb-a6a7-eadb9e75cae9" />
 <img width="400" height="104" alt="IMG_1683" src="https://github.com/user-attachments/assets/1d2360b2-3b4c-4c93-9885-9a64703ad98f" />
 <img width="400" height="104" alt="IMG_1682" src="https://github.com/user-attachments/assets/5df3b58a-0e1d-4696-88a8-ea7668f4b2e6" />
