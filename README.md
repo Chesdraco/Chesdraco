@@ -235,16 +235,13 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 <img width="442" height="512" alt="IMG_1631" src="https://github.com/user-attachments/assets/f593fbba-f256-4684-9a8a-891a4cbe7cce" />
 <img width="2048" height="805" alt="Untitled251_20261027151902" src="https://github.com/user-attachments/assets/ccb9d747-8ec4-4063-8f9a-7dabc7c05409" />
 
-  #  i dont what to put here GUHHH
+  #  i dont know to put here GUHHH
 
 
 
-<p align="left">
-<img width="393" height="393" alt="IMG_1690" src="https://github.com/user-attachments/assets/41aed7d4-bd8d-46fe-a4ed-b0873372dd34" />
-<p align="right">
-<img width="393" height="393" alt="IMG_1686" src="https://github.com/user-attachments/assets/0fa7c40e-6a4b-4f7a-a5e7-a6a41a3bc688" />
 
-<img width="700" height="700" alt="IMG_1645" src="https://github.com/user-attachments/assets/ae6d6bfa-026a-48fc-bd7d-891aff5c2153" />
+
+<img width="500" height="500" alt="IMG_1645" src="https://github.com/user-attachments/assets/ae6d6bfa-026a-48fc-bd7d-891aff5c2153" />
 
 
 <img width="2048" height="805" alt="Untitled251_20261027151910" src="https://github.com/user-attachments/assets/9ccdba2f-d294-4a43-9b75-84441f26848a" />
