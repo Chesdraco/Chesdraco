@@ -241,7 +241,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
 
 
-<img width="500" height="500" alt="IMG_1645" src="https://github.com/user-attachments/assets/ae6d6bfa-026a-48fc-bd7d-891aff5c2153" />
+<img width="200" height="200" alt="IMG_1645" src="https://github.com/user-attachments/assets/ae6d6bfa-026a-48fc-bd7d-891aff5c2153" />
 
 
 
