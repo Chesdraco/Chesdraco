@@ -188,6 +188,10 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
  <p> You don’t talk to me AT ALL as a moot. It’s either ill unfriend you or speak to you about it.</p>
 </details>
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Cinzel+Decorative&pause=1000&color=FF0185&width=435&lines=Let's+thrash%2C+slash%2C+bash+and+dash!;Turning+it+up+to+11.+Hahahahahaha!;But+my+spirit+remains+unbroken!;Woo-hoo%2C+total+party+kill!+Ha+ha!;I+got+shredded...+bleh.;Seek+and+destroy!;Winging+it%2C+dragon+style!;Turning+it+up+to+11!;Ah%2C+you+need+a+nerf.;You+need+a+nerf!+;Epic+quest+fail.%E2%80%A6;Shoot+to+thrill%2C+play+to+kill.;D20+in+hand%2C+dragon+at+my+command.;Stabidy+stab!;Fancy+lancey!;MadEvil+mosh+pit+mayhem.;Just+kidding!;Guitars+wail+when+my+enemies+fail.;Hehe%2C+epic+quest+fail;Huh%2C+formidable+foe%2C+I'll+best+you+for+sure!;Ah%2C+failed+the+saving+throw..;Dragon+rider%2C+pain+provider;Oh%2C+you+better+be+nice%2C+or+I'll+get+my+dice!;Metal+magic+mayhem!;Time+to+shred+some+foes.;Metal+warriors%2C+number+one!;Rumble+and+roar%2C+to+the+top+I+soar!;My+dice%2C+my+dragon%2C+my+destiny-y-y!)](https://git.io/typing-svg)
+
+
+
 
 <p align="center"> 
 <img width="400" height="104" alt="IMG_1680" src="https://github.com/user-attachments/assets/d1206f8a-c72c-48a0-87c3-78cfd5bb3f89" />
