@@ -17,7 +17,9 @@ $\color{#FFFFBF}{\normalsize{\texttt{ ﹒⌗﹒🐉 ﹒౨ৎ˚₊‧ CXH ENC . 
       $\color{#9F18A3}{\normalsize{\texttt{Im not too harsh . Just be patient and follow my boundaries and you’ll be good.͙͘͡★ ۪𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱}}}$ <br>
 $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont play with me anymore or you roll for comedy with disadvantage. ₊⊹﹒}}}$ <br>
 
- 
+
+
+ # information
 <details>
  <summary>About me .<img width="64" height="71" alt="IMG_1631" src="https://github.com/user-attachments/assets/12e8dd54-4a79-4270-a061-ec4f26bef55e" />
 
@@ -185,8 +187,9 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
  <p> You don’t talk to me AT ALL as a moot. It’s either ill unfriend you or speak to you about it.</p>
 </details>
-<p align="center">
- 
+
+
+<p align="center"> 
 <img width="400" height="104" alt="IMG_1680" src="https://github.com/user-attachments/assets/d1206f8a-c72c-48a0-87c3-78cfd5bb3f89" />
   <img width="400" height="54" alt="IMG_1684" src="https://github.com/user-attachments/assets/89fb549a-ed11-40fb-a6a7-eadb9e75cae9" />
 <img width="400" height="104" alt="IMG_1683" src="https://github.com/user-attachments/assets/1d2360b2-3b4c-4c93-9885-9a64703ad98f" />
