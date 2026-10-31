@@ -242,16 +242,6 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf I unfriend you, it means you don't
 <img width="150" height="20" alt="IMG_1675" src="https://github.com/user-attachments/assets/60e1ec43-529a-43c3-94d9-9ad6867cfbb4" />
 <img width="99" height="56" alt="IMG_1676" src="https://github.com/user-attachments/assets/a91ec802-91c6-4768-a562-7f2a88d7e95b" />
 
-<details> 
-   <summary> Little ones <img width="51" height="39" alt="IMG_1634" src="https://github.com/user-attachments/assets/10c04f9a-aab6-4263-91c7-00a5bd8fbc73" />
- </summary>
-    <p> <a href="https://github.com/witherhalo"> wither࿙ </a> </p>
-  <p>  <a href="https://github.com/FEMTANYLX"> nami </p>
- <p><a href="https://github.com/IT-IS-LARRY"> Suma    </p>
- <p> befriend me BAHHHHHH 
-  
-</p>
-</details>
 
 
 
