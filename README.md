@@ -19,7 +19,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont p
 
 
 
- # information
+ # information . More in strawpage 1 GAHHHHH
 <details>
  <summary>About me .<img width="64" height="71" alt="IMG_1631" src="https://github.com/user-attachments/assets/12e8dd54-4a79-4270-a061-ec4f26bef55e" />
 
