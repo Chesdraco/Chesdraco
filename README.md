@@ -14,7 +14,7 @@
 $\color{#FFFFBF}{\normalsize{\texttt{ ﹒⌗﹒🐉 ﹒౨ৎ˚₊‧ CXH ENC . W2IUF .  }}}$ <br>
       $\color{#FE805F}   {\normalsize{\texttt{── .✦ 13 years old . -10 ,30+ DNI . Any/All , Genderfluid+Fae + Demiaroace . }}}$ <br> 
       $\color{#FF0185}{\normalsize{\texttt{⟡ ݁₊ . I go as Leu and Jim. You can call me by the character im cosplaying too.᭄᭡ ͏ ͏ ͏･ }}}$ <br>
-      $\color{#9F18A3}{\normalsize{\texttt{Im not too harsh . Just be patient and follow my boundaries and you’ll be good.͙͘͡★ ۪𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱}}}$ <br>
+      $\color{#9F18A3}{\normalsize{\texttt{Im not that harsh. Just be patient, stay in your lane, and respect my boundaries. do that and we won't have a problem..͙͘͡★ ۪𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱}}}$ <br>
 $\color{#680085}{\normalsize{\texttt{﹕ⵌIf i unfriend you it means you dont play with me anymore or you roll for comedy with disadvantage. ₊⊹﹒}}}$ <br>
 
 
