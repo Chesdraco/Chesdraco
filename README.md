@@ -156,7 +156,7 @@ $\color{#680085}{\normalsize{\texttt{﹕ⵌIf I unfriend you, it means you don't
   <p> People who intentionally be rude to unfamiliar people. Don't ruin their first impression of you, please.</p>
 
   <p> People who say "I miss (friend name) and I wanna talk to them" then go talk to them??? People like this make me feel like unwanted and I'm the last choice. </p>
-<p> chester fictionkins we will NOT get along i fear 😭</p>
+<p> Damian yumeshippers. This is due to past experiences. i was manipulated by one and they made me feel uncomfortable.  Its like being played by a snake in the pit. </p>
 </details>
 
 
