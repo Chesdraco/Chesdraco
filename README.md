@@ -1,4 +1,4 @@
-#  THIS WILL GET UPDATES FREQUENTLY. ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ best viewed on tablets ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀  ⠀ ⠀  ⠀⠀credits to all artists for materials.
+#  THIS WILL GET UPDATES FREQUENTLY. ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀ ⠀ ⠀ ⠀  ⠀ ⠀  ⠀⠀credits to all artists for materials.
 <img width="2048" height="805" alt="Untitled251_20261027151902" src="https://github.com/user-attachments/assets/88ee546b-80f4-4b51-80ec-dbe0f470defc" />
 
 <img width="1280" height="720" alt="Untitled227_20261029221904" src="https://github.com/user-attachments/assets/877b67c7-4b24-4e14-8b06-95862fa67a2f" />
